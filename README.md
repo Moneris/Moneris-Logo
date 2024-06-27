@@ -1,3 +1,1 @@
-# Moneris-Logo
-Moneris Logo
-Please read Moneris_LogoGuidelines_ThirdParty_0716_EN.pdf
+Moneris marketing kit is now available at [Moneris.com](https://www.moneris.com/en/support/additional-resources/moneris-and-card-brand-logos)
